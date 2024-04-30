@@ -3,7 +3,7 @@
 - I’m currently learning STUFFZ and the way of Life
 - I’m looking to collaborate on Projects that are much needed
 - How to reach me: YOU DON'T (I reach you) jkjk prob discord
-- Pronouns: idk
+- Pronouns: He/Him
 - Fun fact: By expecting the unexpected, the unexpected becomes the expected. Thus making the previously expected, expected unexpected (I Think....)
 
 <!---
